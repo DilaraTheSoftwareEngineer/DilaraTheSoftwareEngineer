@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @DilaraTheSoftwareEngineer
 - 👀 I’m interested in meeting new people ,making new projects and new travels
 - 🌱 I’m currently learning java and c#
-- 📫 How to reach me : dilarahatunoglu.34be@gmail.com
+- 📫 How to reach me : dilaraa.hatunogluu@gmail.com
 - ✨ I wish you have a good day ✨
 
 <!---
